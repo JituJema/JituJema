@@ -22,7 +22,7 @@ Still new to **GitHub** and open source, but I'm eager to grow and collaborate!
 
 ### 🤝 Let's Connect
 Want to collaborate or share ideas?  
-Reach me via **WhatsApp**: [+255 621 199 940](https://wa.me/255621199940)
+Reach me via **WhatsApp**: [+255 933 574 336](https://wa.me/255693574336)
 
 I'm open to any support, mentorship, or even just a chat.  
 We rise by lifting others.
